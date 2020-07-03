@@ -25,6 +25,11 @@ Quaternity-Projects  Ebook sales startup project startup bootstrapping &amp; goo
 11. Shepherd Fisherman Evolution
 
 
+
+
+
+# Current Currency
+
 0. Referral Web Email $500 3 weeks / 3 mo.s
 1. V2T Voice Python Text Machine Learning $700 1 week / 1 mo.
 2. Happy Hackathon $20K - $2K 2 weeks / 2 mo.s
