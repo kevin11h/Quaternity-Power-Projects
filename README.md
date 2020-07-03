@@ -6,7 +6,7 @@ Quaternity-Projects  Ebook sales startup project startup bootstrapping &amp; goo
 **King, Lover, Warrior, Magician**
 
 **Quaternity-Projects**
-
+0. Referral Web Email $500
 1. Ebook sales Print Physical Book Sales **Author**
 2. startup project startup bootstrapping & good hatting Hat MATH HAT Square Store **Entrepreneur**
 3. Android APP mobile app Download **Coder Programmer**
