@@ -40,6 +40,9 @@ Quaternity-Projects  Ebook sales startup project startup bootstrapping &amp; goo
 5. Ruby Crypto Book Dictionary 15 mo.s / 15 weeks / 3 weeks / 3 mo.s ?$ how much money?
 ## Generational Generalist (PHYSICAL)
 6. (7)MAKER 3D CREATIVE PHYSICAL PRINTERS PHYSICAL PHONE CASE MOBILE PHOCE CRYPTO CASE AND CRYPTO CARDS PRINT BUSINESS  https://github.com/kevin11h/Smart-Mobile-Phone-Skin-and-Cryptocurrency-Card-Shopify-Store-Sample-Poker-Decks-Designs-Style 
+* Advert Space Revenue for Business Cards
+* Adverts crypto fincancial services
+
 # TIKTIP Tipsy Tipster (DIGITAL) (Mobile App)
 8. Crypto Calculator & Ticker Tip Functionality & Multi-Delivery & Multi-Demand Share Service Delivery & Gig Economy Tip Opener & Multi-Function Gig Worker Social Media Opener Calling Service & Bitcoin Tipping Function for  Doordash, lyft, uber, 
 8.5 "TIKTIP" Crypto Ticker and Calculator and Tipping Mult-Functionality Call on Demand Doordash lyft/uber Postmates
