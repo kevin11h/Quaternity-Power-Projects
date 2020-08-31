@@ -31,10 +31,24 @@ Quaternity-Projects  Ebook sales startup project startup bootstrapping &amp; goo
 
 # Current Currency
 
-0. Referral Web Email $500 3 weeks / 3 mo.s
+0. Referral Web Email $500 3 weeks / 3 mo.s & And also Coinbase Earn and Learn
 1. V2T Voice Python Text Machine Learning $700 1 week / 1 mo.
-2. Happy Hackathon $20K - $2K 2 weeks / 2 mo.s
-3. Andrew Yang $2K 3 weeks / 3 mo.s / 3 days
+2. Happy **Habits** Hackathon $20K - $2K 2 weeks / 2 mo.s (ICON FLIGHT SCHOOL FLY SCHOOL DCE. UNIVERSAL PASSWORD PLANE TICKETS)
+3. Andrew Yang Policy Series $2K 3 weeks / 3 mo.s / 3 days
 4. App Apply Crypto Pulse Mobile App 5 mo.s / 5 weeks to store ?$ how much money?
+### Niche Expert Knowledge Expert Education Deep Research
 5. Ruby Crypto Book Dictionary 15 mo.s / 15 weeks / 3 weeks / 3 mo.s ?$ how much money?
+## Generational Generalist (PHYSICAL)
 6. (7)MAKER 3D CREATIVE PHYSICAL PRINTERS PHYSICAL PHONE CASE MOBILE PHOCE CRYPTO CASE AND CRYPTO CARDS PRINT BUSINESS  https://github.com/kevin11h/Smart-Mobile-Phone-Skin-and-Cryptocurrency-Card-Shopify-Store-Sample-Poker-Decks-Designs-Style 
+# TIKTIP Tipsy Tipster (DIGITAL) (Mobile App)
+8. Crypto Calculator & Ticker Tip Functionality & Multi-Delivery & Multi-Demand Share Service Delivery & Gig Economy Tip Opener & Multi-Function Gig Worker Social Media Opener Calling Service & Bitcoin Tipping Function for  Doordash, lyft, uber, 
+8.5 "TIKTIP" Crypto Ticker and Calculator and Tipping Mult-Functionality Call on Demand Doordash lyft/uber Postmates
+
+# (DIGITAL E-DISTANCE LEARNING / WISDOM) Instant Expert Education Udacity Crypto & Tutor & Grader & Coursera Ramp Up Startups
+9. 
+
+# PHYSICAL PRODUCTS CREATION MAKER & DELIVERY COSTS (PHYSICAL)
+10. Physical delivery products food 0K Zero-K Proof Beverage Non-alcoholic
+** Hats Good Hat Tip Top
+** 0K Proof Beer -costs-
+** crypto watch ticker -costs-
