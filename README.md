@@ -37,3 +37,4 @@ Quaternity-Projects  Ebook sales startup project startup bootstrapping &amp; goo
 3. Andrew Yang $2K 3 weeks / 3 mo.s / 3 days
 4. App Apply Crypto Pulse Mobile App 5 mo.s / 5 weeks to store ?$ how much money?
 5. Ruby Crypto Book Dictionary 15 mo.s / 15 weeks / 3 weeks / 3 mo.s ?$ how much money?
+6. (7)MAKER 3D CREATIVE PHYSICAL PRINTERS PHYSICAL PHONE CASE MOBILE PHOCE CRYPTO CASE AND CRYPTO CARDS PRINT BUSINESS  https://github.com/kevin11h/Smart-Mobile-Phone-Skin-and-Cryptocurrency-Card-Shopify-Store-Sample-Poker-Decks-Designs-Style 
