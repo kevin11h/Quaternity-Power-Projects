@@ -4,6 +4,8 @@ Quaternity-Projects  Ebook sales startup project startup bootstrapping &amp; goo
 **Investor, Author , Entrepreneur, Code Developer**
 **King, Lover, Warrior, Magician**
 
+![](https://miro.medium.com/max/3000/1*Nu9CFPMVzWMAMQUF78DIew.jpeg)
+
 **Quaternity-Projects**
 0. Referral Bonus Recruitive Incentive Program  + Coinbase Learn & Earn
 1. Ebook sales Print Physical Book Sales **Author**
