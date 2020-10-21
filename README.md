@@ -11,7 +11,7 @@ Quaternity-Projects  Ebook sales startup project startup bootstrapping &amp; goo
 1. Ebook sales Print Physical Book Sales **Author** ***S = self-employed***
 2. startup project startup bootstrapping & good hatting Hat MATH HAT Square Store **Entrepreneur** **EXPERIENCE REQUIREMENTS** ***B business owner manager operator non-automated full-time commitment 20+years requirement***
 3. Android APP mobile app Download **Coder Programmer** ***S = staff personnel team member employee***
-4. Portfolio projects; website; blog;  Ruby Crypto Review Ruby LinkedIn LeadGen **Investor**
+4. Portfolio projects; website; blog;  Ruby Crypto Review Ruby LinkedIn LeadGen **Investor** **Financial Income Producing Products  Manager**
 5. Crypterms Dictionary Encyclopedia Content Copy Creative Writing Content Leverage & Learning
 
 # KWML King Warrior Magician Lover Quaternity Careers Consulting & Coaching = IDEA Investor Developer/Programmer/Coder Entrepreneur Author/Writer
