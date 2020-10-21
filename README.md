@@ -5,7 +5,7 @@ Quaternity-Projects  Ebook sales startup project startup bootstrapping &amp; goo
 **King, Lover, Warrior, Magician**
 
 ![](https://miro.medium.com/max/3000/1*Nu9CFPMVzWMAMQUF78DIew.jpeg)
-
+## E-I I-E SHIFT => SELF-FOCUSED EMPLOYEE TO INVESTOR SKIP => SKIP self-employ Expert => SKIP big businesses
 **Quaternity-Projects**
 0. Referral Bonus Recruitive Incentive Program  + Coinbase Learn & Earn
 1. Ebook sales Print Physical Book Sales **Author** ***S = self-employed***
