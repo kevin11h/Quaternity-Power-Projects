@@ -8,9 +8,9 @@ Quaternity-Projects  Ebook sales startup project startup bootstrapping &amp; goo
 
 **Quaternity-Projects**
 0. Referral Bonus Recruitive Incentive Program  + Coinbase Learn & Earn
-1. Ebook sales Print Physical Book Sales **Author**
-2. startup project startup bootstrapping & good hatting Hat MATH HAT Square Store **Entrepreneur**
-3. Android APP mobile app Download **Coder Programmer**
+1. Ebook sales Print Physical Book Sales **Author** ***S = self-employed***
+2. startup project startup bootstrapping & good hatting Hat MATH HAT Square Store **Entrepreneur** **EXPERIENCE REQUIREMENTS** ***B business owner manager operator non-automated full-time commitment 20+years requirement***
+3. Android APP mobile app Download **Coder Programmer** ***S = staff personnel team member employee***
 4. Portfolio projects; website; blog;  Ruby Crypto Review Ruby LinkedIn LeadGen **Investor**
 5. Crypterms Dictionary Encyclopedia Content Copy Creative Writing Content Leverage & Learning
 
