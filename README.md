@@ -1,7 +1,7 @@
 # Quaternity-Power-Projects
 Quaternity-Projects  Ebook sales startup project startup bootstrapping &amp; good hatting Hat MATH HAT Android APP mobile app Portfolio projects; website; blog
 
-**Investor, Author , Entrepreneur, Code Developer**
+**Investor, Author , Entrepreneur, Code Developer** [Key = King - Author-ity / Investor; Warrior = Investor / Entrepreneur ; Lover = Writer/ Author; Magician = Coder / Developer ]
 **King, Lover, Warrior, Magician**
 
 ![](https://miro.medium.com/max/3000/1*Nu9CFPMVzWMAMQUF78DIew.jpeg)
